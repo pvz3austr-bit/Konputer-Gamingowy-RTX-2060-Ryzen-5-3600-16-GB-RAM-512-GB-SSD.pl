@@ -1,0 +1,1 @@
+# Konputer-Gamingowy-RTX-2060-Ryzen-5-3600-16-GB-RAM-512-GB-SSD.pl
